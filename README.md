@@ -1,5 +1,1 @@
-- Hi, I’m @DnDnerd42
-- I’m interested in learning new things
-- I’m currently learning any fun random skill I can find
-- I’m looking to collaborate on new things.
-- How to reach me via comments
+Get my IP if you can... :)
